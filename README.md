@@ -1,1 +1,0 @@
-# martyshkoal.github.io
